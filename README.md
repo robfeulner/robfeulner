@@ -4,9 +4,9 @@
 
 <br/>
 
-![The Burning Desire in a Dollar Bill](https://i.imgur.com/rNDHQOO.gif)
+![The Burning Desire in a Dollar Bill](https://static.wixstatic.com/media/d607e5_9bd9f0b4c10d4d5a9cf4a3882a2152a6~mv2.jpg/v1/fill/w_600,h_405,al_c,q_80,usm_0.66_1.00_0.01,enc_auto/d607e5_9bd9f0b4c10d4d5a9cf4a3882a2152a6~mv2.jpg)
 <br>
-A clip from the film _The Burning Desire in a Dollar Bill_
+An image from the Adult Swim's _Off the Air: NewNow (Analog Video Remix)_
 
 <br/>
 
