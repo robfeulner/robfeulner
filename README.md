@@ -18,7 +18,7 @@ An image from the Adult Swim's _Off the Air: NewNow (Analog Video Remix)_
 
 ## Forthcoming Projects
 
-### [Revamped artisti portfolio](http://robfeulner.com)
+### [Revamped artist portfolio](http://robfeulner.com)
 
 <!--
 **robfeulner/robfeulner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
